@@ -1,7 +1,6 @@
 ## <p align="center">$\Large\color{#42608e}{\textsf{𝑨𝒃𝒐𝒖𝒕 𝒎𝒆}}$
 
 <p align="center"> $\color{#8b171a}{\textsf{❌𝘿𝙤 𝙣𝙤𝙩 𝘾𝙤𝙥𝙮/𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙎𝙠𝙞𝙣´𝙨 𝙤𝒓 𝒎𝒚 𝑷𝒂𝒈𝒆´𝙨❌}}$
-<img width="100" src="(https://img1.picmix.com/output/pic/normal/2/4/6/7/13907642_6d4e4.gif)" alt="">
 
 $\color{#798cb7}{\textsf{🐉 › 𝚈𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙷𝚊𝚗𝚣𝚘! 𝙽𝚘, 𝚢𝚘𝚞 𝚌𝚊𝚗𝚗𝚘𝚝 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙷𝚊𝚗/𝙷𝚊𝚗𝚗𝚢!}}$
 
