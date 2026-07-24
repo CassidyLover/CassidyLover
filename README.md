@@ -1,6 +1,6 @@
 ## <p align="center">$\Large\color{#42608e}{\textsf{𝑨𝒃𝒐𝒖𝒕 𝒎𝒆}}$
 
-<p align="center"> $\color{#8b171a}{\textsf{❌𝘿𝙤 𝙣𝙤𝙩 𝘾𝙤𝙥𝙮 𝙤𝙧 𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙎𝙠𝙞𝙣𝙨❌}}$
+<p align="center"> $\color{#8b171a}{\textsf{❌𝘿𝙤 𝙣𝙤𝙩 𝘾𝙤𝙥𝙮/𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙎𝙠𝙞𝙣´𝙨 𝙤𝒓 𝒎𝒚 𝑷𝒂𝒈𝒆´𝙨❌}}$
 
 $\color{#798cb7}{\textsf{🐉 › 𝚈𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙷𝚊𝚗𝚣𝚘! 𝙽𝚘, 𝚢𝚘𝚞 𝚌𝚊𝚗𝚗𝚘𝚝 𝚌𝚊𝚕𝚕 𝚖𝚎 𝙷𝚊𝚗/𝙷𝚊𝚗𝚗𝚢!}}$
 
@@ -15,3 +15,4 @@ $\color{#798cb7}{\textsf{[𝙱𝚎 𝚙𝚊𝚝𝚒𝚎𝚗𝚝 𝚠𝚒𝚝𝚑
 $\color{#798cb7}{\textsf{💙 › 𝙼𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗𝚜 𝚘𝚗 𝚖𝚢 𝚂𝚝𝚛𝚊𝚠𝙿𝚊𝚐𝚎.}}$
 
 ![4c66d91ca16e409d595ba6243e5fc08c](https://img1.picmix.com/output/pic/normal/3/9/4/7/13907493_1a937.gif)
+$\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
