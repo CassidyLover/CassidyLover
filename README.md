@@ -1,5 +1,5 @@
 ## <p align="center">$\Large\color{#42608e}{\textsf{𝑨𝒃𝒐𝒖𝒕 𝒎𝒆}}$
-
+##
 <p align="center"> $\color{#8b171a}{\textsf{❌𝘿𝙤 𝙣𝙤𝙩 𝘾𝙤𝙥𝙮/𝙩𝙖𝙠𝙚 𝙞𝙣𝙨𝙥𝙤 𝙤𝙛 𝙢𝙮 𝙎𝙠𝙞𝙣´𝙨 𝙤𝒓 𝒎𝒚 𝑷𝒂𝒈𝒆´𝙨❌}}$
 
 <p align="right">  <img src="https://64.media.tumblr.com/7562ee33585802f8b59709685094226e/e9902acfda0c718a-7a/s2048x3072/529809c6ca362965679665bd2ea1a2a30b3c2a74.pnj" width="100" />
@@ -17,8 +17,14 @@ $\color{#798cb7}{\textsf{💙 › 𝙸𝚏 𝚢𝚘𝚞 𝚊𝚛𝚎𝚗´𝚝 �
 $\color{#798cb7}{\textsf{[𝙱𝚎 𝚙𝚊𝚝𝚒𝚎𝚗𝚝 𝚠𝚒𝚝𝚑 𝚖𝚎, 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚒𝚖 𝚘𝚏𝚏-𝚝𝚊𝚋 𝚍𝚞𝚎 𝚒 𝚙𝚕𝚊𝚢 𝙶𝚊𝚖𝚎𝚜 𝚘𝚛 𝚒𝚖 𝚓𝚞𝚜𝚝 𝚟𝚎𝚛𝚢 𝚋𝚞𝚜𝚢!]}}$
 
 $\color{#798cb7}{\textsf{🐉 › 𝙸𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 ´𝚜𝚕𝚎𝚎𝚙𝚢 -𝚒𝚗𝚜𝚎𝚛𝚝 𝚊𝚗𝚢 𝚗𝚊𝚖𝚎-´; 𝚢𝚎𝚜, 𝚒𝚖 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐.}}$
-
-$\color{#798cb7}{\textsf{💙 › 𝙼𝚘𝚛𝚎 𝚒𝚗𝚏𝚘𝚛𝚖𝚊𝚝𝚒𝚘𝚗𝚜 𝚘𝚗 𝚖𝚢 𝚂𝚝𝚛𝚊𝚠𝙿𝚊𝚐𝚎.}}$
-
+##
 ![4c66d91ca16e409d595ba6243e5fc08c](https://img1.picmix.com/output/pic/normal/3/9/4/7/13907493_1a937.gif)
 $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
+## <p align="center">$\Large\color{#8b171a}{\textsf{❌𝑫𝑵𝑰❌}}$
+##
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑯𝒐𝒎𝒐/𝑻𝒓𝒂𝒏𝒔𝒑𝒉𝒐𝒃/𝒂𝒈𝒂𝒊𝒏𝒔𝒕 𝑸𝒖𝒆𝒆𝒓𝒔}..}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑹𝒂𝒄𝒊𝒔𝒕/𝑵𝒛𝒊..}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑷𝒓𝒐𝒔𝒉𝒊𝒑𝒑𝒆𝒓/𝒁𝒐𝒐𝒑𝒉𝒊𝒍𝒊𝒂/𝒔𝒆𝒍𝒇𝒄𝒆𝒔𝒕/𝒄𝒍𝒐𝒏𝒆 𝒔𝒉𝒊𝒑𝒑𝒊𝒏𝒈..𝒆𝒕𝒄.}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑩𝒂𝒔𝒊𝒄 𝑫𝑵𝑰 𝒄𝒓𝒊𝒕𝒊𝒄𝒆𝒓}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑪𝒂𝒍𝒍𝒊𝒏𝒈 𝑪𝒐𝒍𝒆 𝑪𝒂𝒔𝒔𝒊𝒅𝒚 𝒃𝒚 𝒉𝒊𝒔 𝒐𝒍𝒅 𝑵𝒂𝒎𝒆!! 𝑪𝒉𝒂𝒏𝒈𝒆𝒅 𝒃𝒆𝒄𝒂𝒖𝒔𝒆 𝒐𝒇 𝒂 𝑹𝒆𝒂𝒔𝒐𝒏 𝒃𝒕𝒘.!!}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏 𝒐𝒇 𝒑𝒆𝒐𝒑𝒍𝒆 𝒖𝒏𝒅𝒆𝒓 𝟏𝟖, 𝑳𝑬𝑨𝑽𝑬 𝑻𝑯𝑬 +𝟏𝟖 𝑺𝑬𝑹𝑽𝑬𝑹!!!!}}$
