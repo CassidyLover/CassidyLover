@@ -17,6 +17,10 @@ $\color{#798cb7}{\textsf{[𝙱𝚎 𝚙𝚊𝚝𝚒𝚎𝚗𝚝 𝚠𝚒𝚝𝚑
 
 $\color{#798cb7}{\textsf{🐉 › 𝙸𝚏 𝚢𝚘𝚞 𝚜𝚎𝚎 ´𝚜𝚕𝚎𝚎𝚙𝚢 -𝚒𝚗𝚜𝚎𝚛𝚝 𝚊𝚗𝚢 𝚗𝚊𝚖𝚎-´; 𝚢𝚎𝚜, 𝚒𝚖 𝚜𝚕𝚎𝚎𝚙𝚒𝚗𝚐.}}$
 ##
+
+<p align="right"> <img src="https://img1.picmix.com/output/pic/normal/7/8/7/1/13911787_b7cfd.gif" width="200" />
+$\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
+
 ![4c66d91ca16e409d595ba6243e5fc08c](https://img1.picmix.com/output/pic/normal/3/9/4/7/13907493_1a937.gif)
 $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
 ## <p align="center">$\Large\color{#8b171a}{\textsf{❌𝑫𝑵𝑰❌}}$
