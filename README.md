@@ -26,8 +26,9 @@ $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
 ## <p align="center">$\Large\color{#8b171a}{\textsf{❌𝑫𝑵𝑰❌}}$
 ##
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑯𝒐𝒎𝒐-/𝑻𝒓𝒂𝒏𝒔𝒑𝒉𝒐𝒃,𝒂𝒈𝒂𝒊𝒏𝒔𝒕 𝑸𝒖𝒆𝒆𝒓𝒔}..}$
-<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑹𝒂𝒄𝒊𝒔𝒕/𝑵𝒛𝒊..}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑹𝒂𝒄𝒊𝒔𝒕/𝑵zi..}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑷𝒓𝒐𝒔𝒉𝒊𝒑𝒑𝒆𝒓,𝒁𝒐𝒐𝒑𝒉𝒊𝒍𝒊𝒂,𝒔𝒆𝒍𝒇𝒄𝒆𝒔𝒕/𝒄𝒍𝒐𝒏𝒆 𝒔𝒉𝒊𝒑𝒑𝒊𝒏𝒈..𝒆𝒕𝒄.}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑩𝒂𝒔𝒊𝒄 𝑫𝑵𝑰 𝒄𝒓𝒊𝒕𝒊𝒄𝒆𝒓}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑪𝒂𝒍𝒍𝒊𝒏𝒈 𝑪𝒐𝒍𝒆 𝑪𝒂𝒔𝒔𝒊𝒅𝒚 𝒃𝒚 𝒉𝒊𝒔 𝒐𝒍𝒅 𝑵𝒂𝒎𝒆!! 𝑪𝒉𝒂𝒏𝒈𝒆𝒅 𝒃𝒆𝒄𝒂𝒖𝒔𝒆 𝒐𝒇 𝒂 𝑹𝒆𝒂𝒔𝒐𝒏 𝒃𝒕𝒘.!!}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏 𝒐𝒇 𝒑𝒆𝒐𝒑𝒍𝒆 𝒖𝒏𝒅𝒆𝒓 𝟏𝟖, 𝑳𝑬𝑨𝑽𝑬 𝑻𝑯𝑬 +𝟏𝟖 𝑺𝑬𝑹𝑽𝑬𝑹!!!!}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{[ 𝑰 𝒃𝒍𝒐𝒄𝒌 𝒚𝒐𝒖 𝒑𝒆𝒓𝒎𝒂𝒏𝒆𝒏𝒕𝒍𝒚. 𝑰𝒇 𝒊 𝒔𝒆𝒆 𝒂𝒏𝒚𝒕𝒉𝒊𝒏𝒈 𝒐𝒇 𝒕𝒉𝒂𝒕 𝒊𝒏 𝒎𝒚 𝒔𝒊𝒈𝒉𝒕.]}}$
