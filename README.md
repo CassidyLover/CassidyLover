@@ -24,11 +24,22 @@ $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
 ![4c66d91ca16e409d595ba6243e5fc08c](https://img1.picmix.com/output/pic/normal/3/9/4/7/13907493_1a937.gif)
 $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
 ## <p align="center">$\Large\color{#8b171a}{\textsf{❌𝑫𝑵𝑰❌}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{𝐈 𝐁𝐥𝐨𝐜𝐤 𝐩𝐞𝐫𝐦𝐚𝐦𝐞𝐧𝐭𝐥𝐲/𝐟𝐫𝐞𝐞𝐥𝐲 𝐢𝐟 𝐢 𝐬𝐞𝐞 𝐚𝐧𝐲 𝐨𝐟 𝐲𝐨𝐮 𝐢𝐧 𝐦𝐲 𝐬𝐢𝐠𝐡𝐭!}}$
+
 ##
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑯𝒐𝒎𝒐-/𝑻𝒓𝒂𝒏𝒔𝒑𝒉𝒐𝒃,𝒂𝒈𝒂𝒊𝒏𝒔𝒕 𝑸𝒖𝒆𝒆𝒓𝒔}..}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑹𝒂𝒄𝒊𝒔𝒕/𝑵zi..}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑷𝒓𝒐𝒔𝒉𝒊𝒑𝒑𝒆𝒓,𝒁𝒐𝒐𝒑𝒉𝒊𝒍𝒊𝒂,𝒔𝒆𝒍𝒇𝒄𝒆𝒔𝒕/𝒄𝒍𝒐𝒏𝒆 𝒔𝒉𝒊𝒑𝒑𝒊𝒏𝒈..𝒆𝒕𝒄.}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑶𝒎𝒆𝒈𝒂𝒗𝒆𝒓𝒔𝒆 𝒂𝒏𝒅 𝒘𝒉𝒂𝒕𝒆𝒗𝒆𝒓 𝒆𝒙𝒊𝒔𝒕 𝒐𝒇 𝒕𝒉𝒂𝒕..}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑩𝒂𝒔𝒊𝒄 𝑫𝑵𝑰 𝒄𝒓𝒊𝒕𝒊𝒄𝒆𝒓}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑪𝒂𝒍𝒍𝒊𝒏𝒈 𝑪𝒐𝒍𝒆 𝑪𝒂𝒔𝒔𝒊𝒅𝒚 𝒃𝒚 𝒉𝒊𝒔 𝒐𝒍𝒅 𝑵𝒂𝒎𝒆!! 𝑪𝒉𝒂𝒏𝒈𝒆𝒅 𝒃𝒆𝒄𝒂𝒖𝒔𝒆 𝒐𝒇 𝒂 𝑹𝒆𝒂𝒔𝒐𝒏 𝒃𝒕𝒘.!!}}$
+  
+##
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑯𝒂𝒛𝒃𝒊𝒏 𝑯𝒐𝒕𝒆𝒍/𝑯𝒆𝒍𝒍𝒖𝒗𝒂 𝑩𝒐𝒔𝒔,𝑯𝒐𝒚𝒐𝒗𝒆𝒓𝒔𝒆,𝑯𝒐𝒎𝒆𝒔𝒕𝒖𝒄𝒌,}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{𝑻𝒉𝒆 𝑨𝒎𝒂𝒛𝒊𝒏𝒈 𝑫𝒊𝒈𝒊𝒕𝒂𝒍 𝑪𝒊𝒓𝒄𝒖𝒔,𝑶𝒖𝒕𝒍𝒂𝒔𝒕 𝑻𝒓𝒊𝒂𝒍𝒔 𝒆𝒔𝒑. 𝒆𝒙𝒕𝒓𝒆𝒎𝒆 𝑳𝒆𝒍𝒂𝒏𝒅 𝑪𝒐𝒚𝒍𝒆 𝑭𝒂𝒏𝒔,..}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{(𝒎𝒐𝒔𝒕 𝒐𝒇 𝒚𝒐𝒖 𝒂𝒓𝒆 𝒕𝒐𝒙𝒊𝒄 𝒏𝒈𝒍.)}}$
+  
+##
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑳𝒊𝒕𝒆𝒓𝒂𝒍𝒍𝒚 𝒅𝒐 𝒏𝒐𝒕 𝒇𝒍𝒊𝒓𝒕 𝒘𝒊𝒕𝒉 𝒎𝒆!!}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑰´𝒎 𝒏𝒐𝒕 𝒚𝒐𝒖𝒓 𝑭/𝒐!!}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏 𝒐𝒇 𝒑𝒆𝒐𝒑𝒍𝒆 𝒖𝒏𝒅𝒆𝒓 𝟏𝟖, 𝑳𝑬𝑨𝑽𝑬 𝑻𝑯𝑬 +𝟏𝟖 𝑺𝑬𝑹𝑽𝑬𝑹!!!!}}$
-<p align="center">$\Large\color{#8b171a}{\textsf{[ 𝑰 𝒃𝒍𝒐𝒄𝒌 𝒚𝒐𝒖 𝒑𝒆𝒓𝒎𝒂𝒏𝒆𝒏𝒕𝒍𝒚. 𝑰𝒇 𝒊 𝒔𝒆𝒆 𝒂𝒏𝒚𝒕𝒉𝒊𝒏𝒈 𝒐𝒇 𝒕𝒉𝒂𝒕 𝒊𝒏 𝒎𝒚 𝒔𝒊𝒈𝒉𝒕.]}}$
