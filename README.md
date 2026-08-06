@@ -35,12 +35,14 @@ $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑪𝒂𝒍𝒍𝒊𝒏𝒈 𝑪𝒐𝒍𝒆 𝑪𝒂𝒔𝒔𝒊𝒅𝒚 𝒃𝒚 𝒉𝒊𝒔 𝒐𝒍𝒅 𝑵𝒂𝒎𝒆!! 𝑪𝒉𝒂𝒏𝒈𝒆𝒅 𝒃𝒆𝒄𝒂𝒖𝒔𝒆 𝒐𝒇 𝒂 𝑹𝒆𝒂𝒔𝒐𝒏 𝒃𝒕𝒘.!!}}$
   
 ##
+<p align="center">$\Large\color{#8b171a}{\textsf{(𝐅𝐀𝐍𝐃𝐎𝐌, 𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓 𝐖𝐈𝐓𝐇 𝐌𝐄)}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑯𝒂𝒛𝒃𝒊𝒏 𝑯𝒐𝒕𝒆𝒍/𝑯𝒆𝒍𝒍𝒖𝒗𝒂 𝑩𝒐𝒔𝒔,𝑯𝒐𝒚𝒐𝒗𝒆𝒓𝒔𝒆,𝑯𝒐𝒎𝒆𝒔𝒕𝒖𝒄𝒌,}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{𝑻𝒉𝒆 𝑨𝒎𝒂𝒛𝒊𝒏𝒈 𝑫𝒊𝒈𝒊𝒕𝒂𝒍 𝑪𝒊𝒓𝒄𝒖𝒔,𝑶𝒖𝒕𝒍𝒂𝒔𝒕 𝑻𝒓𝒊𝒂𝒍𝒔 𝒆𝒔𝒑. 𝒆𝒙𝒕𝒓𝒆𝒎𝒆 𝑳𝒆𝒍𝒂𝒏𝒅 𝑪𝒐𝒚𝒍𝒆 𝑭𝒂𝒏𝒔,}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{𝑴𝑯𝑨,𝑱𝑱𝑲,𝑪𝒉𝒂𝒊𝒏𝒔𝒂𝒘 𝑴𝒂𝒏,𝑩𝑺𝑫,𝒀𝑩𝑪..}}$
-<p align="center">$\Large\color{#8b171a}{\textsf{(𝐅𝐀𝐍𝐃𝐎𝐌, 𝐃𝐎 𝐍𝐎𝐓 𝐈𝐍𝐓𝐄𝐑𝐀𝐂𝐓 𝐖𝐈𝐓𝐇 𝐌𝐄)}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{𝑻𝒉𝒆 𝑩𝒐𝒚𝒔/+𝑰𝒇 𝒚𝒐𝒖 𝒉𝒂𝒗𝒆 𝒂𝒏𝒚 𝒇𝒊𝒄𝒕𝒊𝒗𝒆 𝑲𝒊𝒏. 𝑺𝒕𝒂𝒚 𝒂𝒘𝒂𝒚 𝒇𝒓𝒐𝒎 𝒎𝒆!}}$
   
 ##
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑳𝒊𝒕𝒆𝒓𝒂𝒍𝒍𝒚 𝒅𝒐 𝒏𝒐𝒕 𝒇𝒍𝒊𝒓𝒕 𝒘𝒊𝒕𝒉 𝒎𝒆!!}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑰´𝒎 𝒏𝒐𝒕 𝒚𝒐𝒖𝒓 𝑭/𝒐!!}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{› 𝑺𝑨 𝑱𝒐𝒌𝒆𝒔! - 𝒀𝒐𝒖 𝒅𝒊𝒔𝒈𝒖𝒔𝒕 𝒎𝒆.}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑰𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒊𝒐𝒏 𝒐𝒇 𝒑𝒆𝒐𝒑𝒍𝒆 𝒖𝒏𝒅𝒆𝒓 𝟏𝟖, 𝑳𝑬𝑨𝑽𝑬 𝑻𝑯𝑬 +𝟏𝟖 𝑺𝑬𝑹𝑽𝑬𝑹!!!!}}$
