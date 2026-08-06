@@ -37,7 +37,7 @@ $\tiny\color{#42608e}{\textsf{ᴘɪᴄᴍɪx ᴍᴀᴅᴇ ʙʏ ᴍᴇ.}}$
 ##
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑯𝒂𝒛𝒃𝒊𝒏 𝑯𝒐𝒕𝒆𝒍/𝑯𝒆𝒍𝒍𝒖𝒗𝒂 𝑩𝒐𝒔𝒔,𝑯𝒐𝒚𝒐𝒗𝒆𝒓𝒔𝒆,𝑯𝒐𝒎𝒆𝒔𝒕𝒖𝒄𝒌,}}$
 <p align="center">$\Large\color{#8b171a}{\textsf{𝑻𝒉𝒆 𝑨𝒎𝒂𝒛𝒊𝒏𝒈 𝑫𝒊𝒈𝒊𝒕𝒂𝒍 𝑪𝒊𝒓𝒄𝒖𝒔,𝑶𝒖𝒕𝒍𝒂𝒔𝒕 𝑻𝒓𝒊𝒂𝒍𝒔 𝒆𝒔𝒑. 𝒆𝒙𝒕𝒓𝒆𝒎𝒆 𝑳𝒆𝒍𝒂𝒏𝒅 𝑪𝒐𝒚𝒍𝒆 𝑭𝒂𝒏𝒔,𝑴𝑯𝑨..}}$
-<p align="center">$\Large\color{#8b171a}{\textsf{(𝒎𝒐𝒔𝒕 𝒐𝒇 𝒚𝒐𝒖 𝒂𝒓𝒆 𝒕𝒐𝒙𝒊𝒄 𝒏𝒈𝒍.)}}$
+<p align="center">$\Large\color{#8b171a}{\textsf{(𝐃𝐍𝐈 𝐅𝐀𝐍𝐃𝐎𝐌!!!)}}$
   
 ##
 <p align="center">$\Large\color{#8b171a}{\textsf{› 𝑳𝒊𝒕𝒆𝒓𝒂𝒍𝒍𝒚 𝒅𝒐 𝒏𝒐𝒕 𝒇𝒍𝒊𝒓𝒕 𝒘𝒊𝒕𝒉 𝒎𝒆!!}}$
